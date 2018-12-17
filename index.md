@@ -1,4 +1,4 @@
-H1 Matt Rozema
+# Matt Rozema
 
 Matt Rozema is musician, father, IT professional at Ambrose University and independant consultant. He is always willing to help solve their IT whoes or design a solution that brings a new idea to life.
 
