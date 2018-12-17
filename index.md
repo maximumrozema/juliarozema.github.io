@@ -1,4 +1,4 @@
-#### Matt Rozema is musician, father, IT professional at Ambrose University and independant consultant. He is always willing to help solve their IT whoes or design a solution that brings a new idea to life
+#### Matt Rozema is musician, father, IT professional at Ambrose University and independant consultant. He is always willing to help solve their IT whoes or design a solution that brings a new idea to life.
 
 #### Matt has worked for the world-class companies IBM and SMART Technologies supporting Canadian banks, retailers such as HBC and Forzani Group. Matt has also supported local doctors and private citizens with their individual technology needs. In his current employement, he has successfully implemented company-wide printing solutions, phone system migration and designed AV presentation systems for all classrooms and a gymnasium.
 
